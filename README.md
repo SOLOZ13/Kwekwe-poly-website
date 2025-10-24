@@ -1,0 +1,1 @@
+The website was created by SE aka SP3CTR4, no AI used, done for web practical practice to figure out where he stands on the practical side. With all due respect, no copyright or imitation of any information, if so he apologize sincerely. Thank you for your time
